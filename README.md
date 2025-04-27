@@ -1,1 +1,1 @@
-One step a head to the King of AI
+One step ahead to the King of AI
