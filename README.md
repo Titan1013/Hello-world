@@ -1,1 +1,1 @@
-AI王への第一歩
+One step a head to the King of AI
