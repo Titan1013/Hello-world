@@ -1,1 +1,1 @@
-# Hello-world
+AI王への第一歩
